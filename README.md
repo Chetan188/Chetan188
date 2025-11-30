@@ -86,5 +86,5 @@
 ---
 
 ## 📫 Contact Me  
-📩 Email: **chetanborasecb@gmail.com**  
+📩 Email: **chetanborse188@gmail.com**  
 🔗 LinkedIn: **linkedin.com/in/chetan-borase-software-engineer/**
